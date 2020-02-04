@@ -11,5 +11,7 @@
 * Social media invites - Chapi
 * Email evites to alumni, current families - Chapi
 * Volunteers for event activities: face painting, pumpkin carving, cake walk, wine walk? Cady/Hilary
+* Will there be a spooky wind in the tree?
 * Reserve sound system
 * Lindsey Fay to speak about play sculpture and provide informative materials - Danielle
+* Smiles all around!
